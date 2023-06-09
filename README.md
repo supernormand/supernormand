@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 create normandy coin 
-<!---365 millions of normandy coin * 365 euros 
+<!---52 millions of normandy coin * 365 euros 
 supernormand/supernormand is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->  create of 1 milion normandy coin per day soon 365 day = 365 millions normandy coin 
+--->  create of 1 milion normandy coin per week soon 52 week  = 52 millions of normandy coin 
+52 millions normandy coin * 365 = 18 980 000 000 milliards d'euros .
